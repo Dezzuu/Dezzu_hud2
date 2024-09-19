@@ -1,1 +1,2 @@
 Creator: Dezzu
+Discord: .dezzu
